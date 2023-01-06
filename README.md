@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋https://teams.microsoft.com/_#/pre-join-calling/19:meeting_NmE5N2I4ZjAtZWRjZi00YTliLWE5N2MtZjk4MzBlNjQ1OTVi@thread.v2
 
 <!--
 **John-Duque/John-Duque** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
